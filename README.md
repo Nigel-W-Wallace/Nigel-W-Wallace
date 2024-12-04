@@ -1,0 +1,5 @@
+-  Greetings, I’m Nigel-W-Wallace owner of the Macon R1 Covetrus HQ
+-  I’m interested in animals I find them very fascinating I enjoy comparing their intellegence to such of a young human and seeing if they could possibly compare.
+-  I’m currently working on my teams google slide for work, projects, and meetings.
+-  I’m looking to collaborate with Covetrus and others who would want to help us with our projects, plans, ect.
+-  How to reach me using a quick email would be the best way.
